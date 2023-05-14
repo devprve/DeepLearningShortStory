@@ -6,4 +6,4 @@ Slide link : [PPT](https://www.slideshare.net/DeviPriya913161/generative-languag
 
 Medium article : [Article](https://medium.com/@devipriyassn.dp/the-potential-of-ai-and-its-impact-4844412caa58)
 
-Video link : [video presentation](https://vimeo.com/826572445?share=copy)
+Video link : [video presentation](https://vimeo.com/826594542?share=copy)
